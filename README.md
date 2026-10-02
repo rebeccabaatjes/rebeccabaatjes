@@ -1,4 +1,4 @@
-## Hi, I'm Becks 👋
+## Hi, I'm Rebecca 👋
 
 Sound engineer, sound designer, and podcast producer with ~10 years across radio, 
 TV, film post-production, and studio sound. Classically trained (BMus, Classical Music) 
